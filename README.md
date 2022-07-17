@@ -9,7 +9,7 @@
 
 
 
-TikTok Reporter by @kl666v <3
+TikTok Reporter by @&! Tekky#1337 <3
 
 
 
